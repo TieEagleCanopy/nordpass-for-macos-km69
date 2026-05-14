@@ -1,4 +1,4 @@
-# 
+# best NordPass for macOS Helper | password-sharing + ransomware-shield is the best NordPass for macOS helper, featuring password-sharing and ransomware-shield. Secure, efficient,
 
 
 
